@@ -70,8 +70,8 @@ Through this project, I enhanced my skills in:
 For any queries or collaborations, feel free to reach out:
 
 **Rohan Thomas Mathew**  
-📧 [YourEmail@example.com]  
-🔗 [LinkedIn Profile](https://www.linkedin.com/in/yourprofile) *(Update this link)*
+📧 rohan.thomas.1223@gmail.com  
+🔗 [LinkedIn Profile]https://www.linkedin.com/in/rohan-thomas-mathew-217b651b1/
 
 ---
 
